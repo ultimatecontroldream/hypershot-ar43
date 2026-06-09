@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot Scripts secret, the #1 Script. Includes auto-collect and unlimited stamina for unbeatable
 
 
 
